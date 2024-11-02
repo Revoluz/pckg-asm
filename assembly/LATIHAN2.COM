@@ -1,0 +1,1 @@
+ë6Saya Lagi BelajarBahasa Assembly $Ternyata...Asik...$´	ºÍ!º%Í!Í 
